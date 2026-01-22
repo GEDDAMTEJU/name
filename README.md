@@ -1,2 +1,2 @@
 # name
-name love u anu
+name love u amma
